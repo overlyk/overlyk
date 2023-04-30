@@ -4,7 +4,7 @@ I grew up in Green Bay, Wisconsin
 
 Now studying at the University of Wisconsin - Green Bay, majoring in Computer Science with a Software Engineering emphasis. 
 
-Passion for game design and game programming.
+Passion for game design, programming, and e-sports.
 
 Work Experience:
 
