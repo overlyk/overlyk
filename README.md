@@ -1,6 +1,5 @@
-# Me
+# Hi There
 
-Kevin O 
 Grew up in Green Bay, Wisconsin
 
 Now studying at the University of Wisconsin - Green Bay, majoring in Computer Science with a Software Engineering emphasis. 
