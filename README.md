@@ -15,4 +15,5 @@ Work Experience:
 ⭐ July 2017 - August 2020 - Head Chef - Cannery Public Market ☁️
 
 About Me:
+
 I'm a big gamer! 🐱 I love to cook and have had a previous career in hospitality and managing restaurants. 
