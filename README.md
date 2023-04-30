@@ -16,4 +16,4 @@ Work Experience:
 
 About Me:
 
-I'm a big gamer! 🐱 I love to cook and have had a previous career in hospitality and managing restaurants. 
+I'm a big gamer! I love to cook and have had a previous career in hospitality and managing restaurants. 
